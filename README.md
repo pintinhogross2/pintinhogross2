@@ -1,8 +1,8 @@
 ### Boas vindas ao meu perfil 💙💙
-Eu sou lindo
-Eu odeio o alura 
-Amo a minha cama
-Não gosto da escola
+•Eu sou lindo
+•Eu odeio o alura 
+•Amo a minha cama
+•Não gosto da escola
 
 
 
