@@ -1,6 +1,6 @@
 ### Boas vindas ao meu perfil 💙💙
 
-meu nome: Gustavo Henrique
+•meu nome: Gustavo Henrique
 
 •Eu sou lindo
 
