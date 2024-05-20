@@ -1,5 +1,7 @@
 ### Boas vindas ao meu perfil 💙💙
 
+meu nome: Gustavo Henrique
+
 •Eu sou lindo
 
 •Eu odeio o alura 
